@@ -1,4 +1,4 @@
-💼 Experienced Scrum Master | 💻 Aspiring Coder & Technologist
+## 💼 Experienced Scrum Master | 💻 Aspiring Coder & Technologist
 
 ** Hi there! I'm a seasoned Scrum Master with a proven track record of leading cross-functional teams to deliver high-quality software solutions—on time and within budget. With years of experience fostering collaboration, agility, and continuous improvement, I thrive on helping teams succeed.
 
